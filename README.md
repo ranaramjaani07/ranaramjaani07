@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br><br>Hi, I'm Rana Ram 👨‍💻  <br>I'm a passionate **Digital Creator & Developer** from India 🇮🇳  <br><br>🚀 Currently working on:<br>- Digital Product Selling Website<br>- Ebooks, Courses & Online Methods Business<br>- Telegram-based Product Delivery System<br><br>
+<br><br>Hi, I'm lakash jaani  👨‍💻  <br>I'm a passionate **Digital Creator & Developer** from India 🇮🇳  <br><br>🚀 Currently working on:<br>- Digital Product Selling Website<br>- Ebooks, Courses & Online Methods Business<br>- Telegram-based Product Delivery System<br><br>
 
 
 ## 🌐 Socials:
